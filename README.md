@@ -1,1 +1,1 @@
-# VsCodeWebTasarimTemelleriMertKARABACAK
+# VsCodeWebTasarimTemelleriMertKARABACAK4.hafta
